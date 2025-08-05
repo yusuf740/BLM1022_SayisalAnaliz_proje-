@@ -1,0 +1,1 @@
+# BLM1022_SayisalAnaliz_proje-
